@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sachinpathakvns
+- 👋 Hi,there  I’m @sachinpathakvns
 - 👀 I’m interested in gaming and collaborating with peoples 
 - 🌱 I’m currently learning c
 - 📫 How to reach me, gmail @ pathkaksachin@gmail.com
